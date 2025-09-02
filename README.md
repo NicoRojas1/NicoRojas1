@@ -33,8 +33,8 @@ Apasionado por crear interfaces modernas, intuitivas y con gran impacto visual. 
 ---
 
 ## 📬 Conecta conmigo
-- LinkedIn: [linkedin.com/in/tuusuario](https://linkedin.com/in/tuusuario)  
-- GitHub: [github.com/tuusuario](https://github.com/tuusuario)  
+- LinkedIn: www.linkedin.com/in/nicolas-rojas-neira-42b90b377 
+- Correo: nicorojas1@hotmail.com 
 
 ---
 
